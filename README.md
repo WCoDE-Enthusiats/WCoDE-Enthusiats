@@ -1,4 +1,8 @@
-## Hi there 👋
+## We are a BIG, BLESSED, and *BLESSING* FAMILY! 🥰🥰
+
+Sourced from the fertile virgin religious grounds of beautiful Indonesia.
+
+We should probably have made an organisation instead.
 
 <!--
 **WCoDE-Enthusiats/WCoDE-Enthusiats** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
